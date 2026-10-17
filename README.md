@@ -50,14 +50,14 @@
 
 这些地址可能随时调整，建议以本仓库最新公布的信息为准。
 
-* [优化线路1](https://xn--8xmwv5jfdg-sj2p996c00pcvz.xinludianqi.net/)
-* [优化线路2](https://xn--xm45ce8yzp-lv8rl41dm4dsr9i.xinludianqi.net/)
-* [优化线路3](https://xn--4eh7mvjzdb-cc2ya8101da.xinludianqi.net/)
-* [优化线路4](https://xn--tgrpvs9a6e-3j2p68h6u1ixor.xinludianqi.net/)
-* [优化线路5](https://xn--e92u7zg5mj-0y9p66vzw1ail2e.hebeibanwang.com/)
-* [优化线路6](https://xn--2ake4sdh5n-099p186e7kq930c.hebeibanwang.com/)
-* [优化线路7](https://xn--xfd8mc2ngs-1i4qt08iu70civ0a.hebeibanwang.com/)
-* [优化线路8](https://xn--vhug2j8pq5-6n3qa7326ba.hebeibanwang.com/)
+* [优化线路1](https://xn--q5nam2zwg-kd5pv678a1p9ay6a.xinludianqi.net/)
+* [优化线路2](https://xn--qcjp6b8yn-f74ok116adfm0q4e.xinludianqi.net/)
+* [优化线路3](https://xn--9a5t7sdyg-zc3os6nba7458l.xinludianqi.net/)
+* [优化线路4](https://xn--a7uxm3546-u75n832lsu0kg5a.xinludianqi.net/)
+* [优化线路5](https://xn--6ma457fp8-u95nm9bo06e8ru.hebeibanwang.com/)
+* [优化线路6](https://xn--cvsxgpfan-zq7nz8uln8b20zg.hebeibanwang.com/)
+* [优化线路7](https://xn--wyjnctm4v-pg5rozi31j0o5g.hebeibanwang.com/)
+* [优化线路8](https://xn--ua9wj7trb-9u5pa2226ka.hebeibanwang.com/)
 
 
 **📢 访问提醒：**
@@ -270,14 +270,6 @@ GitHub 仓库则可以作为一个相对固定的官方信息发布入口，帮�
 我们相信，好的观影体验不应该被复杂的操作和繁琐的付费方式打断。
 
 **让内容回归精彩，让观看回归简单。**
-
-### ✨ 免费看短剧 · 畅享多元影视
-
-**官方网站：** [aiyemu.com](https://aiyemu.com/)
-
-**回家计算器：** [aiyemu.cc](https://aiyemu.cc/)
-
-**专属回家码：** `249368`
 
 ---
 
