@@ -50,14 +50,14 @@
 
 这些地址可能随时调整，建议以本仓库最新公布的信息为准。
 
-* [优化线路1](https://xn--akdt4q286j-o55rp84gzv2a111d.shch2008.com/)
-* [优化线路2](https://xn--ajnf6v5me4-sj2p126n2jdls9m.shch2008.com/)
-* [优化线路3](https://xn--6jvfceb5ry-2n4qh933ccrfl2p.shch2008.com/)
-* [优化线路4](https://xn--9qxj53hytd-lv8rl41dm4dsr9i.shch2008.com/)
-* [优化线路5](https://xn--zdc3npgy8t-sj2p160g083afud.hebeibanwang.com/)
-* [优化线路6](https://xn--c3fej2ztdr-r82ti9a502c277d.hebeibanwang.com/)
-* [优化线路7](https://xn--3urx8v4zps-8z2q612bxkqz00d.hebeibanwang.com/)
-* [优化线路8](https://xn--s74uqtjde6-1v2p59a3138a36qd.hebeibanwang.com/)
+* [优化线路1](https://xn--bfs3rgya9h-o55rp84gzv2a111d.shch2008.com/)
+* [优化线路2](https://xn--95uxcns7mb-wj3rh93bhy2j25qb.shch2008.com/)
+* [优化线路3](https://xn--ncfvd7hsxu-r89pl1pba8889m.shch2008.com/)
+* [优化线路4](https://xn--7bqh5m69r3-922py1d7v3iz3h.shch2008.com/)
+* [优化线路5](https://xn--e4vufkjmdw-y95q5071a6dcuz9d.hebeibanwang.com/)
+* [优化线路6](https://xn--4q3avxshn9-9p4q635i194jf43a.hebeibanwang.com/)
+* [优化线路7](https://xn--s7nbc3yvd8-ww5u42buz9d3g4a.hebeibanwang.com/)
+* [优化线路8](https://xn--6rqas27y9u-ww5u42buz9d3g4a.hebeibanwang.com/)
 
 
 **📢 访问提醒：**
