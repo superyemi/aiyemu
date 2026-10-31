@@ -50,14 +50,14 @@
 
 这些地址可能随时调整，建议以本仓库最新公布的信息为准。
 
-* [优化线路1](https://xn--mbutp6ajg9-jc6qx30c0m8sa.xuelicai.net/)
-* [优化线路2](https://xn--r9zft6dqg4-2j7r196dqhal441e.xuelicai.net/)
-* [优化线路3](https://xn--2qjw9vzpgy-im4qt35lzmvvjo.xuelicai.net/)
-* [优化线路4](https://xn--5bqf93edn4-w05wc69e8jar94a.xuelicai.net/)
-* [优化线路5](https://xn--ckazruxfy5-y78sp29ec4h1m6f.lspaimai2013.com/)
-* [优化线路6](https://xn--4m9cwj3vpz-n42qt56ftl7aoo0c.lspaimai2013.com/)
-* [优化线路7](https://xn--t7erhqdpsj-vm4wa6224ea.lspaimai2013.com/)
-* [优化线路8](https://xn--z3wyr2n9ke-ru1we302ah73a9ep.lspaimai2013.com/)
+* [优化线路1](https://xn--8zp2gwrfem-gh7q5251a8pav249b.xuelicai.net/)
+* [优化线路2](https://xn--dh24qg9cev-p52rt0v0s1cm66e.xuelicai.net/)
+* [优化线路3](https://xn--sajvuz98b3-pf2pq06mzb1au05a.xuelicai.net/)
+* [优化线路4](https://xn--h85cdwukya-0y9pm80g966afja.xuelicai.net/)
+* [优化线路5](https://xn--sp9tduqvk2-pf2pm31kc6hns7o.lspaimai2013.com/)
+* [优化线路6](https://xn--bpyfghr759-9p3px46b5z4jp7wd.lspaimai2013.com/)
+* [优化线路7](https://xn--nhweas8kr9-xs3tm263axnjquu.lspaimai2013.com/)
+* [优化线路8](https://xn--dnw5xp43fe-uk5t40ab23qffvd.lspaimai2013.com/)
 
 
 **📢 访问提醒：**
