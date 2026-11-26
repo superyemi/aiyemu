@@ -50,14 +50,14 @@
 
 这些地址可能随时调整，建议以本仓库最新公布的信息为准。
 
-* [优化线路1](https://xn--xf2jpe8cz39n-u929av94gk6elnb.hezhongyi.net/)
-* [优化线路2](https://xn--rsey5fwux2ng-195swm2212cdwtd.hezhongyi.net/)
-* [优化线路3](https://xn--wcvd52a937et-1j5sv96ot4eg14j.hezhongyi.net/)
-* [优化线路4](https://xn--pg5e2x4z67tb-fl1wg1cl6toj2i.hezhongyi.net/)
-* [优化线路5](https://xn--usjn6qwr3cka-mx0u379rxea62b.kingcom-dl.com/)
-* [优化线路6](https://xn--u5wcyvd34bta-3h9t995gf68ikmqa.kingcom-dl.com/)
-* [优化线路7](https://xn--hs69uafcnmyt-is6sn79i0junqm.kingcom-dl.com/)
-* [优化线路8](https://xn--5wepgy98vfmr-oz02a838ce86a0sa.kingcom-dl.com/)
+* [优化线路1](https://xn--e3ramx56psw-3q73a884jmy0afrs.hezhongyi.net/)
+* [优化线路2](https://xn--c8rbqnf53us-6m0rv12ewll9r7t.hezhongyi.net/)
+* [优化线路3](https://xn--bsh2k8f64uc-909q494an8yfwx.hezhongyi.net/)
+* [优化线路4](https://xn--mq7tp6y8g3z-zp8q449vngwea.hezhongyi.net/)
+* [优化线路5](https://xn--ws3euk68qpt-9j2vo2ch18cdt0a.kingcom-dl.com/)
+* [优化线路6](https://xn--hgpsxat93m2-ll8rv2rv01dk1ze.kingcom-dl.com/)
+* [优化线路7](https://xn--r5xdnv9b83y-2c2vlp959xxta.kingcom-dl.com/)
+* [优化线路8](https://xn--f6w248aby7r-wp1rn28hi76d7hyc.kingcom-dl.com/)
 
 
 **📢 访问提醒：**
